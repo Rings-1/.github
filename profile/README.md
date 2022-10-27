@@ -3,11 +3,11 @@ It is importatnt to query the blockchain for meaningful metrics on upcoming tren
 
 ## Know when the next big thing in the metaverse is about to 3RUPT
 
-🫵 Use pre-built queries or custom queries, even third-party queries from other dapps.
+🫵 Use pre-built ads/campaigns and posts designed around user interfaces/experiences.
 
-✨ Use pre-built queries or custom queries, even third-party queries from other dapps.
+✨ Set goals and expectations you suspect will occur based on the angles/approaches of your ads.
 
-📣 Use pre-built queries or custom queries, even third-party queries from other dapps.
+📣 Send out a ripple into your community and see the effects as it ripples out from them.
 
 🔓 Unlock new opportunities by broading your search radius and allow for an evolving target audience.
 
