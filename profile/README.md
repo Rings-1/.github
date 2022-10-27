@@ -1,7 +1,7 @@
 #  <img src="https://user-images.githubusercontent.com/61543012/197418790-84eae101-b015-47ce-9829-c18ebd95a45f.png" height="35" width="35" align-items="center" justify-content="center" /> Rings
-It is importatnt to query the blockchain for meaningful metrics on upcoming trends in the metaverse. Let us guide you using data analytics and market sentiment.
+Access the network around you by sending out ripples and navigating the rings of influence you fin yourself inside of.
 
-## Know when the next big thing in the metaverse is about to 3RUPT
+## A CRM and network explorer/developer using blockchain connectivity.
 
 🫵 Use pre-built ads/campaigns and posts designed around user interfaces/experiences.
 
